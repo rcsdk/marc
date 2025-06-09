@@ -1,3 +1,20 @@
+So please understand this project i think the first step is to get a definition of what are the 300 best reno plastic surgeons in the us i think that's the most important thing right now but understanding this organize the whole process here on this prompt  please including the tools etc. And i'll tell you more if this is not looking realistic which i think is a little bit beyond realistic already let's step back a little bit and do something realistic you know at the end of the day i need to do a presentation with the results of the 300 showing that i really research them and a local research from new york same thing local rhinoplastic surgeons that i need to compare the best one so that i can give him a rationale of why is better to do his website in a determined way.
+
+
+
+ The primary focus is to identify and define the 300 best rhinoplasty surgeons in the United States. Establishing this list is essential as it will serve as the foundation for an organized approach throughout the entire project. We must consider the tools and methodologies needed to facilitate this research effectively.
+
+If, at any point, this task appears overly ambitious or unrealistic, I am open to reassessing our goals and adjusting them to something more achievable. It’s important that we remain practical while still aiming for quality results.
+
+Ultimately, I need to compile a comprehensive presentation showcasing the findings on these 300 surgeons. This presentation must demonstrate that I have conducted rigorous research into each one, highlighting their qualifications, experience, and patient outcomes. In addition to this national analysis, I will also focus on local rhinoplasty surgeons in New York. This local research is vital for making direct comparisons between the top surgeons nationwide and the best available options in the area.
+
+The ultimate goal is to provide a well-reasoned rationale for designing a website that effectively addresses the needs of potential patients. This rationale will be based on the data collected from both the national and local analyses, ensuring that the website is both informative and influential in attracting clients.
+
+
+
+
+
+
 Rhinoplasty Surgeons Website Analysis Project Plan
 
 
